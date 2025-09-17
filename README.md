@@ -1,3 +1,1 @@
 # Ciganek
-
-Cus kundus
